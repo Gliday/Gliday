@@ -1,4 +1,4 @@
-## Hi, I'm Gliday Yuka Luvonga 👋
+## Hi, I'm Gliday Yuka 👋
 
 **Conservation technology & bioinformatics researcher** based in Nairobi, Kenya.
 
